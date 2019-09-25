@@ -1,4 +1,10 @@
-# EDM
+# 電子音樂
+
+電子音樂，亦簡稱電音，是使用電子樂器以及電子音樂技術來製作的音樂；而創作或表演這類音樂的音樂家則稱為電子音樂家。
+
+電子音樂一度幾乎完全與西方，特別是歐洲的藝術音樂連結，但自從 1960 年代晚期以後，因爲摩爾定律造就了可負擔的起的音樂科技，意味著使用電子方式製作音樂變的越來越在各國不同區域流行的領域普及與發揚起來。今日的電子音樂包含各式各樣以及範圍，從實驗藝術音樂到流行形式，如電子舞曲。
+
+## 電子舞曲（EDM）
 
 電子舞曲（英語：Electronic Dance Music，英文多稱及簡稱為 EDM），是一種主要與舞蹈相關的娛樂活動中播放所製作的電子音樂，但很多也是當作流行樂出品或將流行曲當做素材，與流行舞曲、電子流行、合成器流行有著密不可分的關係。此類型的音樂大多是為了讓 DJ 於連續播放的「DJ set」中使用而創作，在 DJ set 中，DJ 會使用 混音等技巧讓不同歌曲或唱片之間能夠滑順的銜接起來。
 
@@ -7,9 +13,9 @@
 ## 目錄
 
 * [起源](origin.md)
+* [Chill Out](chill_out.md)
 * [Chiptune](chiptune.md)
-* [Downtempo](downtempo.md)
-* [Drum n Bass](drum_and_bass.md)
+* [Drum and Bass](drum_and_bass.md)
 * [Eurodisco](eurodisco.md)
 * [Hiphop](hiphop.md)
 * [House](house.md)
