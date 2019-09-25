@@ -25,6 +25,17 @@ Deep 代表是安靜、沉的意思，所以 Deep House 節拍與節奏不會到
 [▶️ Pascal Letoublon - Friendships  
 ![Pascal Letoublon - Friendships \[Suprafive Records\]](https://img.youtube.com/vi/JbYg-KwSY9E/0.jpg)](https://youtu.be/JbYg-KwSY9E?t=80)
 
+## Hip House（嘻哈浩室）
+
+> Emergence: Late 80s
+
+Hip house, also known as rap house or house rap, is a musical genre that mixes elements of house music and hip hop. Originating in Chicago and in the United Kingdom.
+
+Hip House is House music with rapping. It happened pretty quickly after House music wrapped around the world because you'd have to be pretty dumb to not think of an idea like this.
+
+[▶️ Far East Movement ft. The Cataracs, DEV - Like A G6  
+![Far East Movement ft. The Cataracs, DEV - Like A G6 (Official Video)](https://img.youtube.com/vi/w4s6H4ku6ZY/0.jpg)](https://youtu.be/w4s6H4ku6ZY?t=142)
+
 ## Progressive House（漸進浩室 / 前衛浩室）
 
 > Emergence: Early 90s
