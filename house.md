@@ -60,12 +60,15 @@ House music always had an uplifting quality to it, but a subgenre of Progressive
 
 > Emergence: Early 00s
 
-擁有浩室音樂基本的特色，由鼓聲器所組成 4/4 拍子，伴隨著明顯的低音聲線（bassline）和大鼓 (Kick Drum)，此外電子浩室的最大特徵在於是在每一個拍點都有顯著的 鼓打貝斯。
+擁有浩室音樂基本的特色，由鼓聲器所組成 4/4 拍子，伴隨著明顯的低音聲線（bassline）和大鼓 (Kick Drum)，此外電子浩室的最大特徵在於是在每一個拍點都有顯著的鼓打貝斯。
 
 [▶️ Electro House Loop](https://upload.wikimedia.org/wikipedia/commons/4/4c/Electro_House_Loop.ogg)
 
 [▶️ Madeon - Icarus  
 ![Madeon Teaser (ICARUS)](https://img.youtube.com/vi/ZGBIINyAonc/0.jpg)](https://youtu.be/ZGBIINyAonc?t=45)
+
+[▶️ Virtual Riot - Energy Drink  
+![Virtual Riot - Energy Drink (FREE DOWNLOAD)](https://img.youtube.com/vi/5IOVkstxkdE/0.jpg)](https://youtu.be/5IOVkstxkdE?t=116)
 
 [▶️ Deorro - Five Hours  
 ![Deorro - Five Hours (Static Video) \[LE7ELS\]](https://img.youtube.com/vi/K_yBUfMGvzc/0.jpg)](https://youtu.be/K_yBUfMGvzc?t=141)
