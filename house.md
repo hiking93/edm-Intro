@@ -33,6 +33,9 @@ Hip house, also known as rap house or house rap, is a musical genre that mixes e
 
 Hip House is House music with rapping. It happened pretty quickly after House music wrapped around the world because you'd have to be pretty dumb to not think of an idea like this.
 
+[▶️ David Guetta - Little Bad Girl  
+![David Guetta - Little Bad Girl ft. Taio Cruz, Ludacris (Official Video)](https://img.youtube.com/vi/9ha5ujHnYXg/0.jpg)](https://youtu.be/9ha5ujHnYXg?t=108)
+
 [▶️ Far East Movement ft. The Cataracs, DEV - Like A G6  
 ![Far East Movement ft. The Cataracs, DEV - Like A G6 (Official Video)](https://img.youtube.com/vi/w4s6H4ku6ZY/0.jpg)](https://youtu.be/w4s6H4ku6ZY?t=142)
 
@@ -44,17 +47,28 @@ Progressive House（漸進浩室）乃浩室音樂的一個分支 始於 1990 �
 
 House music always had an uplifting quality to it, but a subgenre of Progressive House took it one step further, introducing breakdowns and builds and crowd cheering samples as if it was at a rock concert, and anthems from Rave as if was at a rave.
 
+[▶️ Zedd - Beautiful Now ft. Jon Bellion  
+![Zedd - Beautiful Now (Official Music Video) ft. Jon Bellion](https://img.youtube.com/vi/n1a7o44WxNo/0.jpg)](https://youtu.be/n1a7o44WxNo?t=83)
+
 [▶️ Avicii - Levels
 ![Avicii - Levels](https://img.youtube.com/vi/_ovdm2yX4MA/0.jpg)](https://youtu.be/_ovdm2yX4MA?t=49)
 
 [▶️ Alan Walker - Faded  
 ![Alan Walker - Faded](https://img.youtube.com/vi/60ItHLz5WEA/0.jpg)](https://youtu.be/60ItHLz5WEA?t=47)
 
-[▶️ David Guetta - Little Bad Girl  
-![David Guetta - Little Bad Girl ft. Taio Cruz, Ludacris (Official Video)](https://img.youtube.com/vi/9ha5ujHnYXg/0.jpg)](https://youtu.be/9ha5ujHnYXg?t=108)
-
 [▶️ Jeff Ozmits - Healing Rain (Naz K Remix)  
 ![Jeff Ozmits - Healing Rain ( Naz K Remix ) \*OUT NOW\*](https://img.youtube.com/vi/I_wEAe4DZ9o/0.jpg)](https://youtu.be/I_wEAe4DZ9o?t=150)
+
+## Tech House（科技浩室）
+
+> Emergence: Mid 90s
+
+科技浩室經常使用 bassline 作為主旋律。
+
+Tech house is a subgenre of house music that combines stylistic features of techno with house. The term tech house developed as a shorthand record store name for a category of electronic dance music that combined musical aspects of techno, such as "rugged basslines" and "steely beats," with the harmonies and grooves of house music. The music originally had a clean and minimal production style that was associated with techno from Detroit and the UK.
+
+[▶️ Patrick Topping - Forget  
+!['Forget' - Patrick Topping](https://img.youtube.com/vi/fdAAVJZXoYM/0.jpg)](https://youtu.be/fdAAVJZXoYM?t=129)
 
 ## Tropical House（熱帶浩室）
 
@@ -84,7 +98,10 @@ House music always had an uplifting quality to it, but a subgenre of Progressive
 [▶️ Deorro - Five Hours  
 ![Deorro - Five Hours (Static Video) \[LE7ELS\]](https://img.youtube.com/vi/K_yBUfMGvzc/0.jpg)](https://youtu.be/K_yBUfMGvzc?t=141)
 
-## Big room house（重拍浩室）
+[▶️ Porter Robinson - Language  
+![Porter Robinson - Language](https://img.youtube.com/vi/Vsy1URDYK88/0.jpg)](https://youtu.be/Vsy1URDYK88?t=116)
+
+### Big room house（重拍浩室）
 
 > Emergence: Mid 10s
 
@@ -111,3 +128,6 @@ Big Room House 基本上是不會在副歌中放人聲，因為重點就是鼓�
 
 [▶️ DVBBS & Borgeous - Tsunami
 ![DVBBS & Borgeous - Tsunami (Original Mix)](https://img.youtube.com/vi/t0ewsr3s7yM/0.jpg)](https://youtu.be/t0ewsr3s7yM?t=79)
+
+[▶️ Showtek ft. We Are Loud & Sonny Wilson - Booyah
+![Showtek ft. We Are Loud & Sonny Wilson - Booyah (Official Music Video)](https://img.youtube.com/vi/QCyIY10KBnk/0.jpg)](https://youtu.be/QCyIY10KBnk?t=80)
