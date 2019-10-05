@@ -47,6 +47,9 @@ Eurodance is influenced by House music, and while contemporary to Eurobeat, is b
 [▶️ Basshunter - DotA  
 ![BASSHUNTER - DOTA](https://img.youtube.com/vi/qTsaS1Tm-Ic/0.jpg)](https://youtu.be/qTsaS1Tm-Ic?t=162)
 
+[▶️ ATC - All Around The World  
+![ATC - All Around The World (la la la la la la la la)](https://img.youtube.com/vi/IRvGZffXhfk/0.jpg)](https://youtu.be/IRvGZffXhfk?t=33)
+
 歐陸舞曲也帶動了亞洲舞曲的風潮。
 
 [▶️ 이정현 - 바꿔  
@@ -54,6 +57,27 @@ Eurodance is influenced by House music, and while contemporary to Eurobeat, is b
 
 [▶️ 陳慧琳 - 不得了  
 ![陳慧琳 不得了](https://img.youtube.com/vi/LDYuYO4_oLo/0.jpg)](https://youtu.be/LDYuYO4_oLo?t=15)
+
+### Bubblegum dance（泡泡糖舞曲）
+
+> Emergence: Mid 90s
+
+Eurodance 泡泡糖舞曲（Bubblegum Dance）起源於北歐斯堪地那維亞半島，尤其是丹麥。 20 世紀 90 年代後期和 21 世紀初，是泡泡糖舞曲的勢頭的最高點。傳到中國的時候被一些片商改名叫 兔子舞，也由於當時 2000 年的時候，跳舞機、跳舞毯風靡，這種舞曲也被叫做 跳舞機舞曲。從傳統上風格上講，泡泡糖舞曲的風格極為開朗、有趣，雖然歌詞往往顯得有些幼稚，但是動聽的旋律使人一聽變會覺得心情愉悅。
+
+![Ayaiyai](https://i.imgur.com/RtwPBk0.png)
+
+Euro bubblegum dance music has a huge following in Japan, probably due to its use in popular dance games such as Dance Dance Revolution (DDR), In The Groove (ITG), and the Dancemania series. Many artists, such as Smile.dk, Bambee, Ni-Ni, Rebecca and Miss Papaya, have gained recognition and fame through these games. As well as this, anime has a large bubblegum dance following, and many fans choose to use bubblegum dance styled music in their fan-made anime music videos (AMVs).
+
+Traditionally, bubblegum dance music can be described as cheerful, amusing, silly and childish, with many people leading to the conclusion that the song or artist is aimed at children. However, it is common for artists of this genre to incorporate sexually suggestive lyrics into some of their songs. While sometimes these suggestive lyrics might be very obvious, other times they might go unnoticed.
+
+[▶️ Smile - Butterfly  
+![Smile - Butterfly (Official Music Video)](https://img.youtube.com/vi/QzcvRDWgRIE/0.jpg)](https://youtu.be/QzcvRDWgRIE?t=30)
+
+[▶️ Aqua - Barbie Girl  
+![Aqua - Barbie Girl (Official Video)](https://img.youtube.com/vi/ZyhrYis509A/0.jpg)](https://youtu.be/ZyhrYis509A?t=131)
+
+[▶️ The Gummy Bear Song  
+![The Gummy Bear Song - Long English Version](https://img.youtube.com/vi/astISOttCQ0/0.jpg)](https://youtu.be/astISOttCQ0?t=46)
 
 ## Synthwave
 
