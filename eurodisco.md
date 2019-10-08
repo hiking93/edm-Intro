@@ -9,14 +9,17 @@ Europop 是一種流行音樂風格，起源於 20 世紀 60 年代後期的歐�
 [▶️ Eurythmics - Sweet Dreams  
 ![Eurythmics - Sweet Dreams (Are Made Of This) (Official Video)](https://img.youtube.com/vi/qeMFqkcPYcg/0.jpg)](https://youtu.be/qeMFqkcPYcg)
 
-[▶️ 原子邦妮 Astro Bunny - 外婆的泡泡糖  
-![原子邦妮 Astro Bunny 【外婆的泡泡糖】(原歌詞版)](https://img.youtube.com/vi/W7gdBrf1stM/0.jpg)](https://youtu.be/W7gdBrf1stM?t=186)
+[▶️ Lady Gaga - Bad Romance  
+![Lady Gaga - Bad Romance (Official Music Video)](https://img.youtube.com/vi/qrO4YZeyl0I/0.jpg)](https://youtu.be/qrO4YZeyl0I?t=254)
+
+[▶️ Kylie Minogue - Can't Get You Out Of My Head  
+![Kylie Minogue - Can't Get You Out Of My Head (HD)](https://img.youtube.com/vi/YPwtJ89jes4/0.jpg)](https://youtu.be/YPwtJ89jes4?t=107)
 
 ## Eurobeat（歐洲節拍）
 
 > Emergence: Late 80s
 
-歐洲節拍在 20 世紀 70 年代晚期或 80 年代早期從義大利迪斯可舞曲（Italo Disco）發展出來。在早期，歐洲節拍的速度大約在 120BPM 左右。
+歐洲節拍在 20 世紀 70 年代晚期或 80 年代早期從義大利迪斯可舞曲（Italo Disco）發展出來。在早期，歐洲節拍的速度大約在 120 BPM 左右。
 
 [▶️ Dave Rogers - Deja Vu  
 ![DAVE RODGERS / DEJA VU 【Official Lyric Video】](https://img.youtube.com/vi/tdeJiw6qMkA/0.jpg)](https://youtu.be/tdeJiw6qMkA?t=63)
@@ -27,8 +30,8 @@ Europop 是一種流行音樂風格，起源於 20 世紀 60 年代後期的歐�
 
 20 世紀 90 年代，一種混合​​歐洲節拍與 Happy Hardcore 的風格 —— 超級歐洲節拍（Super Eurobeat）—— 出現，這種超級歐洲節拍成為日本各地 Para Para 舞廳的主流，速度也增加到 150BPM 或更高，也稱為 Hyper Techno。
 
-[▶️ Para Para Dance  
-![Para Para Dance](https://img.youtube.com/vi/xa2-PTtrhck/0.jpg)](https://youtu.be/xa2-PTtrhck?t=72)
+[▶️ Hinoi Team - Ike Ike  
+![Hinoi Team - Ike Ike PV](https://img.youtube.com/vi/aNlkiymcT1Q/0.jpg)](https://youtu.be/aNlkiymcT1Q?t=46)
 
 [▶️ 郭富城 Aaron Kwok - Para Para Sakura  
 ![郭富城 Aaron Kwok - Para Para Sakura](https://img.youtube.com/vi/-0aB7EDZ6TU/0.jpg)](https://youtu.be/-0aB7EDZ6TU?t=56)
@@ -56,7 +59,7 @@ Eurodance is influenced by House music, and while contemporary to Eurobeat, is b
 ![이정현 (Lee JungHyun) - 바꿔 (Bakkwo) 02/05/2000](https://img.youtube.com/vi/URoehXX4HEk/0.jpg)](https://youtu.be/URoehXX4HEk?t=39)
 
 [▶️ 陳慧琳 - 不得了  
-![陳慧琳 不得了](https://img.youtube.com/vi/LDYuYO4_oLo/0.jpg)](https://youtu.be/LDYuYO4_oLo?t=15)
+![Kelly Chen 陳慧琳 – 不得了 國語 1080p MV HD TEST ONLY](https://img.youtube.com/vi/4rb2EYfEo9g/0.jpg)](https://youtu.be/4rb2EYfEo9g?t=15)
 
 ### Bubblegum dance（泡泡糖舞曲）
 
@@ -91,6 +94,9 @@ Synthwave（又稱 Outrun、Retrowave、和 Futuresynth）是八零年代電影�
 
 [▶️ Magic Sword - In The Face Of Evil  
 ![Magic Sword - In The Face Of Evil](https://img.youtube.com/vi/G02wKufX3nw/0.jpg)](https://youtu.be/G02wKufX3nw?t=47)
+
+[▶️ Miami Nights 1984 - Accelerated  
+![Miami Nights 1984 - Accelerated](https://img.youtube.com/vi/rDBbaGCCIhk/0.jpg)](https://youtu.be/rDBbaGCCIhk?t=177)
 
 [▶️ Dance With the Dead - Waves  
 ![DANCE WITH THE DEAD - Waves](https://img.youtube.com/vi/_eHMCbR_s_Y/0.jpg)](https://youtu.be/_eHMCbR_s_Y?t=69)
