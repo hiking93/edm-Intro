@@ -27,6 +27,9 @@ The idea was to do things to Trance that had not been done before: Extended brea
 
 Progressive 有進步、發展、的意思，簡單來說，就是一種循序漸進的感覺，比較注重旋律和樂曲的編排，速度（BPM）介於 128 到 136 之間，通常這類型的曲風非常的廣，幾乎佔大多數，代表的人物像是 Above & Beyond、Cosmic Gate、KhoMha、Markus Schulz、Protoculture 等……。
 
+[▶️ Ashley Wallbridge feat. NASH - GODS  
+![Ashley Wallbridge feat. NASH - GODS](https://img.youtube.com/vi/b3mOLJvbBwQ/0.jpg)](https://youtu.be/Qn5u0WZEkNg?t=53)
+
 [▶️ Tiësto feat. Nelly Furtado - Who Wants To Be Alone  
 ![Tiësto feat. Nelly Furtado - Who Wants To Be Alone](https://img.youtube.com/vi/b3mOLJvbBwQ/0.jpg)](https://youtu.be/b3mOLJvbBwQ?t=237)
 

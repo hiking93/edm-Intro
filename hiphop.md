@@ -35,7 +35,7 @@ Moombahcore is a subgenre of moombahton with dubstep influences, also incorporat
 ![SKRILLEX - Bangarang feat. Sirah \[Official Music Video\]](https://img.youtube.com/vi/YJVmu6yttiw/0.jpg)](https://youtu.be/YJVmu6yttiw?t=75)
 
 [▶️ Teminite - Spider  
-![\[Moombahcore\] Teminite - Spider](https://img.youtube.com/vi/YJVmu6yttiw/0.jpg)](https://youtu.be/YJVmu6yttiw?t=75)
+![\[Moombahcore\] Teminite - Spider](https://img.youtube.com/vi/qZufr9B0QzQ/0.jpg)](https://youtu.be/qZufr9B0QzQ?t=48)
 
 ## Trap（陷阱）
 

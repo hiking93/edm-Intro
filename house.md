@@ -47,17 +47,20 @@ Progressive House（漸進浩室）乃浩室音樂的一個分支 始於 1990 �
 
 House music always had an uplifting quality to it, but a subgenre of Progressive House took it one step further, introducing breakdowns and builds and crowd cheering samples as if it was at a rock concert, and anthems from Rave as if was at a rave.
 
-[▶️ Zedd - Beautiful Now ft. Jon Bellion  
-![Zedd - Beautiful Now (Official Music Video) ft. Jon Bellion](https://img.youtube.com/vi/n1a7o44WxNo/0.jpg)](https://youtu.be/n1a7o44WxNo?t=83)
-
-[▶️ Avicii - Levels
-![Avicii - Levels](https://img.youtube.com/vi/_ovdm2yX4MA/0.jpg)](https://youtu.be/_ovdm2yX4MA?t=49)
+[▶️ Avicii - Levels  
+![Avicii - Levels](https://img.youtube.com/vi/_ovdm2yX4MA/0.jpg)](https://youtu.be/_ovdm2yX4MA?t=45)
 
 [▶️ Alan Walker - Faded  
 ![Alan Walker - Faded](https://img.youtube.com/vi/60ItHLz5WEA/0.jpg)](https://youtu.be/60ItHLz5WEA?t=47)
 
+[▶️ PROFF - Interstellar  
+![PROFF - Interstellar](https://img.youtube.com/vi/yr615Pc3W3o/0.jpg)](https://youtu.be/yr615Pc3W3o?t=95)
+
 [▶️ Jeff Ozmits - Healing Rain (Naz K Remix)  
 ![Jeff Ozmits - Healing Rain ( Naz K Remix ) \*OUT NOW\*](https://img.youtube.com/vi/I_wEAe4DZ9o/0.jpg)](https://youtu.be/I_wEAe4DZ9o?t=150)
+
+[▶️ Zedd - Beautiful Now ft. Jon Bellion  
+![Zedd - Beautiful Now (Official Music Video) ft. Jon Bellion](https://img.youtube.com/vi/n1a7o44WxNo/0.jpg)](https://youtu.be/n1a7o44WxNo?t=83)
 
 ## Tech House（科技浩室）
 
@@ -80,6 +83,9 @@ Tech house is a subgenre of house music that combines stylistic features of tech
 
 [▶️ Kygo - Firestone ft. Conrad Sewell  
 ![Kygo - Firestone ft. Conrad Sewell (Official Video)](https://img.youtube.com/vi/9Sc-ir2UwGU/0.jpg)](https://youtu.be/9Sc-ir2UwGU?t=103)
+
+[▶️ Justin Bieber - What Do You Mean?  
+![Justin Bieber - What Do You Mean? (Official Music Video)](https://img.youtube.com/vi/DK_0jXPuIr0/0.jpg)](https://youtu.be/DK_0jXPuIr0?t=223)
 
 ## Electro House（電子浩室）
 
